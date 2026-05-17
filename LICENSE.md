@@ -1,10 +1,10 @@
-Premium Surfshark Plugin | obfuscation + split tunneling is the best Surfshark plugin with obfuscation and split tunneling. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/surfshark-rf97/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
